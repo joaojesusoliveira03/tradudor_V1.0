@@ -1,0 +1,1 @@
+# tradudor_V1.0
